@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Automation Projects
 - 📫 How to reach me 9353384552
 - 😄 Pronouns: Rahul
-- ⚡ Fun fact: Life is beautiful...
+- ⚡ Fun fact: Life is Beautiful...
 
 <!---
 Rahul-Harakari/Rahul-Harakari is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
