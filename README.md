@@ -2,7 +2,7 @@
 - 👀 I’m interested in Test Automation
 - 🌱 I’m currently learning Cucumber Frame Work
 - 💞️ I’m looking to collaborate on Automation Projects
-- 📫 How to reach me 9353384552
+- 📫 How to reach me rmh42742@gmail.com
 - 😄 Pronouns: Rahul
 - ⚡ Fun fact: Life is Beautiful...
 
